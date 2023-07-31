@@ -1,4 +1,4 @@
-- Hi, I’m @Silvicide, I'm 16y/o, i use they/them prns
+- Hi, I’m @Silvicide, I'm 16y/o
 - I’m interested in Programming Various Things
 - I’m currently learning Minecraft Mod Development
 - How to reach me : Discord : @harley.is.dumb
